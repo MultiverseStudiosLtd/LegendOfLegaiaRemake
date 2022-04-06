@@ -7,3 +7,4 @@ Website - https://multiversestudiosl.wixsite.com/mvstudios
 Reddit - https://www.reddit.com/user/MultiverseStudios
 Instagram - https://www.instagram.com/multiversestudiosltd/
 Twitter - https://twitter.com/LtdMultiverse
+Discord Server - https://discord.gg/FU5bACje5E
