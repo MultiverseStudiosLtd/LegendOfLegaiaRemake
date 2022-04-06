@@ -6,3 +6,4 @@ With modern mechanics and updated user interfaces. The Legend of Legaia Remake w
 Website - https://multiversestudiosl.wixsite.com/mvstudios
 Reddit - https://www.reddit.com/user/MultiverseStudios
 Instagram - https://www.instagram.com/multiversestudiosltd/
+Twitter - https://twitter.com/LtdMultiverse
